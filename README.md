@@ -17,4 +17,7 @@ Discord de TwaKy développement : https://discord.gg/e4aZpaKZ
 
 BON JEU !
 
+![image](https://user-images.githubusercontent.com/83500465/122744416-3e725e80-d288-11eb-930f-a698e5d705b1.png)
+
+
 
